@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my current profession
 - 📫 How to reach me: Facebook Lameck Simba
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ... football
 -->
